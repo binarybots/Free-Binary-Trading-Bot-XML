@@ -6,6 +6,6 @@ Free Binary Trading Bot - Download the xml file attached and trade with your bin
 This is a free bot Reach me for legit 100% win rate premium bots
 
 E-Mail: lewisluseka@gmail.com or 
-Whatsapp https://254703409799
+Whatsapp https://254780392681
 
-Join telegram channel: https://t.me/deriv_and_binary_bots
+Join telegram channel: https://t.me/deriv_binary_forex_trading
